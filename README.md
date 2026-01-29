@@ -1,1 +1,0 @@
-# Punya Guwe
